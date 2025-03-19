@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @PICIUPA0
 - 👀 I’m interested in livin a happy life, ya know?
-- 🌱 I’m currently learning nothin cuz my school sucks.
-- 💞️ I’m looking to collaborate whit no one cuz I'm introvert.
-- 📫 How NOT to reach me:
-- 😄 Pronouns: I identify as a Balistic Intercontinental Missile.
+- 🌱 I’m currently learning nothin cuz of school.
+- 💞️ I’m looking to not collaborate.
+- 📫 How NOT to reach me: Amazon@gmail.hotmail.idk.com
+- 😄 Pronouns: I identify as an Orange.
 - ⚡ Fun fact: Plutonium has a very sour flavor.
 
 <!---
